@@ -1,12 +1,13 @@
 ## 💉 Bonjour/ Hi / Guten tag! 💉
-- ◁▶ Important things to Know before you Interact with Ze Medic! ◁▶
+
+◁▶ 🍎 ↠ ■■■■■  IMPORTANT---TO---READ----BEFORE----INTERACTING -- : -------  ■■■■■  ↞ 🍎 ◁▶
 
 - ☆⌒ Austin/Marvin | He/Him/Pup/Puppy ⌒☆
 - *★,°* Gay/Pan Transmasc Puppy man *★,°*:
 - *★ Feeling like a million Deutschmarks with my partner! ^^ *★
 - ⚜ I speak French as basic language and English is my second ⚜
 
-- ◈ In  Ponytown : ◈
+  🍎 ↠ ■■■■■  ABOUT-----ME---IN---PONYTOWN--- -- : -------  ■■■■■  ↞ 🍎
  
 - ■ I'm usually around as Team Fortress 2 characters. Main Medic, Sniper or Spy ■
 - ♡ƪ I relate to Medic alot / feel comfortable as him, I talk like him out of character ƪ♡
@@ -18,7 +19,7 @@
 - ◉ Don't hesitate to come sit with me even if I am with my friends! I LOVE meeting new people and it dosen't bother me! ◉
 
 
-- 🍎 ▶ My Status Meaning in Pony Town ◀ 🍎 :
+   🍎 ↠ ■■■■■  MY----PONYTOWN-----STATUS-----MEANINGS -- : -------  ■■■■■  ↞ 🍎
  
 - ☆💬 Looking for Chat 💬: Interact Please I will be glad to talk to you/ meet you! ☆ 
 - ☆🌙 Away 🌙 : AFk or doing something else, Whisper to interact. I always answer back!☆ 
@@ -26,7 +27,7 @@
 - 💬 Both normal chat and Whispers are preferred! Sometime I don't get the whispers immidiately so I may answer you late 💬
 
 
-- 🚫 ▰▰ Don't Interact / DNI ▰▰ 🚫 :
+ 🚫 ↠ ■■■■■  DNI ------ DON'T ----- INTERACT---- IF -- : -------  ■■■■■  ↞ 🚫
 - ⇨ Homophobic, Racists, Maga supporters, Pred, Mean or rude people, Basic criterias ⇦
 - ⇨ People that just come next to me to insult me without a reason, being nice won't hurt you i promise! ⇦
 - ⇨ Haters of TF2 Fandoms, it's not because you hate it that you have to insult me because I love it, respect is important ⇦
