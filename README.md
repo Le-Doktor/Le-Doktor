@@ -6,7 +6,7 @@
 - ☆⌒ Austin/Marvin | He/Him/Pup/Puppy ⌒☆
 - *★,°* Gay/Pan Transmasc Puppy man *★,°*
 - *★ Taken and feeling like a million Deutschmarks with my partner! ^^ *★
-- *★,°* I Speak French as basic language and English as second, I know a BIT of German *★,°*
+- *★,°* Speaking French as basic language and English as second, I know a BIT of German *★,°*
 
   🍎 ↠ ■■■■■  ABOUT-----ME---IN---PONYTOWN--- -- : -------  ■■■■■  ↞ 🍎
 
