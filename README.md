@@ -1,8 +1,4 @@
 ## Bonjour/ Hallo / Guten tag!
-
-<!--
-**Le-Doktor/Le-Doktor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 - ◁▶ Important things to Know before you Interact with Ze Medic! ◁▶
 
 - ☆⌒ Austin/Marvin / He/Him/Pup/Puppy ⌒☆
@@ -37,4 +33,8 @@
 - ⇨ If you spread rumors DNI please. I am not interested to hear negative and mean things about someone I don't know or to have rumors spreads about me.
 
 ❤ ↠ ■■■■■  T  H   A   N  K  S      Y  O  U     F  O  R      R  E  A  D  I  N  G  !  ■■■■■  ↞ ❤
+<!--
+**Le-Doktor/Le-Doktor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
 -->
