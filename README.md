@@ -2,12 +2,14 @@
 
 ◁▶ 🍎 ↠ ■■■■■  IMPORTANT---TO---READ----BEFORE----INTERACTING -- : -------  ■■■■■  ↞ 🍎 ◁▶
 
+
 - ☆⌒ Austin/Marvin | He/Him/Pup/Puppy ⌒☆
 - *★,°* Gay/Pan Transmasc Puppy man *★,°*:
 - *★ Feeling like a million Deutschmarks with my partner! ^^ *★
 - ⚜ I speak French as basic language and English is my second ⚜
 
   🍎 ↠ ■■■■■  ABOUT-----ME---IN---PONYTOWN--- -- : -------  ■■■■■  ↞ 🍎
+
  
 - ■ I'm usually around as Team Fortress 2 characters. Main Medic, Sniper or Spy ■
 - ♡ƪ I relate to Medic alot / feel comfortable as him, I talk like him out of character ƪ♡
@@ -20,6 +22,7 @@
 
 
    🍎 ↠ ■■■■■  MY----PONYTOWN-----STATUS-----MEANINGS -- : -------  ■■■■■  ↞ 🍎
+
  
 - ☆💬 Looking for Chat 💬: Interact Please I will be glad to talk to you/ meet you! ☆ 
 - ☆🌙 Away 🌙 : AFk or doing something else, Whisper to interact. I always answer back!☆ 
@@ -28,6 +31,8 @@
 
 
  🚫 ↠ ■■■■■  DNI ------ DON'T ----- INTERACT---- IF -- : -------  ■■■■■  ↞ 🚫
+
+ 
 - ⇨ Homophobic, Racists, Maga supporters, Pred, Mean or rude people, Basic criterias ⇦
 - ⇨ People that just come next to me to insult me without a reason, being nice won't hurt you i promise! ⇦
 - ⇨ Haters of TF2 Fandoms, it's not because you hate it that you have to insult me because I love it, respect is important ⇦
