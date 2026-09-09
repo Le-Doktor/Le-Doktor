@@ -7,7 +7,7 @@
 - ⚜ I speak French as basic language and English is my second ⚜
 
 - ◈ In  Ponytown : ◈
-- 
+ 
 - ■ I'm usually around as Team Fortress 2 characters. Main Medic, Sniper or Spy ■
 - ♡ƪ I relate to Medic alot / feel comfortable as him, I talk like him out of character ƪ♡
 - ◉ C + H Encouraged!!! I LOVE cuddling with people even if I don't know you. No need to ask before ◉
@@ -19,7 +19,7 @@
 
 
 - 🍎 ▶ My Status Meaning in Pony Town ◀ 🍎 :
-- 
+ 
 - ­☆💬 Looking for Chat 💬: Interact Please I will be glad to talk to you/ meet you! ☆ 
 - ☆🌙 Away 🌙 : AFk or doing something else, Whisper to interact. I always answer back!☆ 
 - ☆⛔ Busy ⛔: DNI please, I may be  upset or sad (I RARELY USE THIS STATUT unless something bad happened) ☆
@@ -34,7 +34,7 @@
 - ⇨ I wont tolerate bullying of my partner, friends or me, if something happened, always whisper me FIRST, and stay polite ⇦
 - ⇨ If you spread rumors DNI please. I am not interested to hear negative and evil things about someone I don't know or to have rumors spreads about me.
 
-❤ ↠ ■■■■■  T  H   A   N  K  S    |  Y  O  U   |  F  O  R   |   R  E  A  D  I  N  G  !  ■■■■■  ↞ ❤
+❤ ↠ ■■■■■  T  H   A   N  K  S ------  Y  O  U ----- F  O  R ----- R  E  A  D  I  N  G  ! -------  ■■■■■  ↞ ❤
 <!--
 **Le-Doktor/Le-Doktor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
