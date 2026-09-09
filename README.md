@@ -1,11 +1,12 @@
-## 💉 Bonjour/ Hi / Guten tag! 💉
+## 💉⨉ Bonjour/ Hi / Guten tag! ⨉💉
 
 ◁▶ 🍎 ↠ ■■■■■  IMPORTANT---TO---READ----BEFORE----INTERACTING -- : -------  ■■■■■  ↞ 🍎 ◁▶
 
 
 - ☆⌒ Austin/Marvin | He/Him/Pup/Puppy ⌒☆
 - *★,°* Gay/Pan Transmasc Puppy man *★,°*
-- *★ Feeling like a million Deutschmarks with my partner! ^^ *★
+- *★ Taken and feeling like a million Deutschmarks with my partner! ^^ *★
+- *★,°* I Speak French as basic language and English as second, I know a BIT of German *★,°*
 
   🍎 ↠ ■■■■■  ABOUT-----ME---IN---PONYTOWN--- -- : -------  ■■■■■  ↞ 🍎
 
