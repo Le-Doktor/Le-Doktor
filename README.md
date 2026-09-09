@@ -21,7 +21,7 @@
    🍎 ↠ ■■■■■  MY----PONYTOWN-----STATUS-----MEANINGS -- : -------  ■■■■■  ↞ 🍎
 
 
-  - ☆💬 Looking for Chat 💬: Interact Please I will be glad to talk to you/ meet you! ☆
+  - ☆💬 Looking for Chat 💬: Interact Please!!! I will be glad to talk to you/ meet you! ☆
   - ☆🌙 Away 🌙 : AFk or doing something else, Whisper to interact. I always answer back! ☆
   - ☆⛔ Busy ⛔: DNI please, I may be upset or sad (I RARELY USE THIS STATUT unless something bad happened) ☆
   - 💬 Both normal chat and Whispers are preferred! Sometime I don't get the whispers immidiately so I may answer you late 💬
