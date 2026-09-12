@@ -5,7 +5,7 @@
 
 - ☆⌒ Austin/Marvin | He/Him/Pup/Puppy ⌒☆
 - *★,°* Gay/Pan Transmasc Puppy man *★,°*
-- *★ feeling like a million Deutschmarks! ^^ *★
+- *★ feeling like a million Deutschmarks with mein partner! ^^ *★
 - *★,°* Speaking French as basic language and English as second, I know a BIT of German *★,°*
 
   🍎 ↠ ■■■■■  ABOUT-----ME---IN---PONYTOWN--- -- : -------  ■■■■■  ↞ 🍎
@@ -33,7 +33,7 @@
 
  - ⇨ Homophobic, Racists, Maga supporters, Pred, Mean or rude people, Basic criterias ⇦
  - ⇨ Haters of TF2 Fandoms, it's not because you hate it that you have to insult me because I love it, respect is important ⇦
- - ⇨ I wont tolerate bullying of my friends or me, if something happened, always whisper me FIRST, and stay polite ⇦
+ - ⇨ I wont tolerate bullying of my Partner, friends or me, if something happened, always whisper me FIRST, and stay polite ⇦
  - ⇨ If you spread rumors DNI please. I am not interested to hear negative and evil things about someone I don't know or to have rumors spreads about me.
 
 ❤ ↠ ■■■■■  T  H   A   N  K  S ------  Y  O  U ----- F  O  R ----- R  E  A  D  I  N  G  ! -------  ■■■■■  ↞ ❤
