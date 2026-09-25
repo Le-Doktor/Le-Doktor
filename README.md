@@ -13,7 +13,6 @@
 
   - ■ I'm usually around as Team Fortress 2 characters. Main Medic, Sniper or Spy ■
   - ♡ƪ I relate to Medic alot / feel comfortable as him, I talk like him out of character ƪ♡
-  - ◉ C + H Encouraged!!! I LOVE cuddling with people even if I don't know you. No need to ask before ◉
   - ◉ I'm always positive and optimistic! I Love to comfort people and I will always try to make you feel better! ◉
   - ◉>> I'm comfortable with Non-verbal / Semi-Verbal people! I understand boops as ''let's go there/follow me, faces & head shakes <<◉
   - ◉ I'm more comfortable with people that can keep a conversation, once I know you well, i'm a silly goofy pup that talk very much! ◉
